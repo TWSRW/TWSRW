@@ -7,3 +7,4 @@
   wuwuwuawuae
 <div align="center">
   <img width="1280" height="204" alt="1000220685" src="https://github.com/user-attachments/assets/e4c6ac2a-dd25-41d0-8d1a-2274501db15d" />
+  <img src="https://komarev.com/ghpvc/?username=TWSRW&style=pixel&color=9b87ff&label=·✦·&abbreviated=true">
