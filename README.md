@@ -4,10 +4,10 @@
 <p align="center">
 xylcvs / rev 𓂃 ࣪˖</br>
 e┆ en/id .ᐟ (＠＾◡＾)</br>
-  any /  ㅤ ᛝ . ୧  socially awkward　═╬
+   /  ㅤ ᛝ . ୧  socially awkward　═╬
 ㅤ  𓈒 ꒪ㅤ  .  ͡꒱ㅤ I draw & write
 </div>
-<p align="center"> <a href="https://westsea.straw.page">strawp</a> ✦ <a href="https://pronouns.cc/@xylcvs">prns</a> • <a href="https://rentry.co/estehjumbo">rentry</a>
+<p align="center"> <a href="https://westsea.straw.page">strawp</a> ✦ <a href="https://rentry.co/estehjumbo">rentry</a>
 <p align="center">
     ───────── ᛝ ─────────</br>
   wuwuwuawuae
