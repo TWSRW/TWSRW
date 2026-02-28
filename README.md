@@ -5,7 +5,7 @@
 xylcvs / rev 𓂃 ࣪˖</br>
 e┆ en/id .ᐟ (＠＾◡＾)</br>
    /  ㅤ ᛝ . ୧  socially awkward　═╬
-ㅤ  𓈒 ꒪ㅤ  .  ͡꒱ㅤ I draw & write
+ㅤ  𓈒 ꒪ㅤ  .  ͡꒱ㅤ  ㅤ I draw & write
 </div>
 <p align="center"> <a href="https://westsea.straw.page">strawp</a> ✦ <a href="https://rentry.co/estehjumbo">rentry</a>
 <p align="center">
