@@ -1,16 +1,9 @@
-<div align="center">
-  <img width="1280" height="204" alt="1000220685" src="https://github.com/user-attachments/assets/ff9054f3-c1df-409f-8934-7d8e85792cc4" />
-  <img width="1280" height="1053" alt="1000220684" src="https://github.com/user-attachments/assets/29cfb181-d6e6-4634-8588-0795db0a55ca" />
+  <img width="1080" height="810" alt="1000260165" src="https://github.com/user-attachments/assets/3b53177c-5ae2-439b-96e1-7ec56ddfdcc7" />
 <p align="center">
-xylcvs / rev 𓂃 ࣪˖</br>
-e┆ en/id .ᐟ (＠＾◡＾)</br>
-   /  ㅤ ᛝ . ୧  socially awkward　═╬
-ㅤ  𓈒 ꒪ㅤ  .  ͡꒱ㅤ  ㅤ ffffff
+hehe saheon, hehe, baek, hehe, saheon, hehehehehehehehe
 </div>
 <p align="center"> <a href="https://westsea.straw.page">strawp</a> ✦ <a href="https://rentry.co/estehjumbo">rentry</a>
 <p align="center">
     ───────── ᛝ ─────────</br>
-  wuwuwuawuae
-<div align="center">
-  <img width="1280" height="204" alt="1000220685" src="https://github.com/user-attachments/assets/e4c6ac2a-dd25-41d0-8d1a-2274501db15d" />
+  BAEK SAHEON is my lifestyle
   <img src="https://komarev.com/ghpvc/?username=TWSRW&style=pixel&color=9b87ff&label=·✦·&abbreviated=true">
