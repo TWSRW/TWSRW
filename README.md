@@ -1,6 +1,6 @@
-  <img width="1080" height="810" alt="1000260165" src="https://github.com/user-attachments/assets/3b53177c-5ae2-439b-96e1-7ec56ddfdcc7" />
+<img width="1280" height="1280" alt="1000265270" src="https://github.com/user-attachments/assets/67b0e152-d991-4ebc-a4e1-46d59e98b1e4" />
 <p align="center">
-hehe saheon, hehe, baek, hehe, saheon, hehehehehehehehe
+solsah⁠♡
 </div>
 <p align="center"> <a href="https://westsea.straw.page">strawp</a> ✦ <a href="https://rentry.co/estehjumbo">rentry</a>
 <p align="center">
