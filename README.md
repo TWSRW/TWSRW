@@ -1,4 +1,4 @@
-<img width="1280" height="1280" alt="1000265270" src="https://github.com/user-attachments/assets/67b0e152-d991-4ebc-a4e1-46d59e98b1e4" />
+<img width="880" height="880" alt="1000265270" src="https://github.com/user-attachments/assets/67b0e152-d991-4ebc-a4e1-46d59e98b1e4" />
 <p align="center">
 solsah⁠♡
 </div>
