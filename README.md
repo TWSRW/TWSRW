@@ -18,8 +18,6 @@ The identity of 'the agent who came to Jisan Village'.
 
 The agent who can't be contacted when a certain person goes missing.
 
-
-
 An agent who seems to know him strangely well.
 
 That was...
@@ -37,7 +35,5 @@ He couldn't get an answer now anyway.
 No–
 
 Perhaps he wasn't ready yet...
-
-BAEK SAHEON is my lifestyle
 
   <img src="https://komarev.com/ghpvc/?username=TWSRW&style=pixel&color=9b87ff&label=·✦·&abbreviated=true">
