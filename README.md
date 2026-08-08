@@ -2,7 +2,7 @@
 <p align="center">
   <img width="550" height="350" alt="solsahsolismylifestyle" src="https://github.com/user-attachments/assets/5e568c21-ad8c-4de1-9dce-0dbb55d6903e" />
 </div>
-<p align="center"> <a href="https://rentry.co/twsrw">rentry</a>
+<p align="center"> 
 
 백사헌이 나와 진나솔을 번갈아 보더니, 곧 입가를 일그 러트리며 말했다.
 
